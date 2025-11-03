@@ -1,4 +1,4 @@
-# aitools.fyi Black Friday and Cyber Monday Deals 2024
+# Black Friday and Cyber Monday Deals 2025
 
 [![aitools.fyi Black Friday](black-friday.png)](https://aitools.fyi/black-friday)
 
